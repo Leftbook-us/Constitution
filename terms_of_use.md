@@ -1,3 +1,12 @@
+---
+post_title: '**_Leftbook Socialist Network_** Temporary Interim Policies'
+post_name: '**_Leftbook Socialist Network_** Temporary Interim Policies'
+post_date: '2018-03-07 15:21:26'
+layout: post
+published: true
+author: Leftbook
+---
+
 **_Leftbook Socialist Network_**
 Temporary Interim Policies
 
