@@ -1,0 +1,27 @@
+---
+post_title: '**_Leftbook Socialist Network_** Temporary Interim Policies'
+post_name: '**_Leftbook Socialist Network_** Temporary Interim Policies'
+post_date: '2018-03-07 15:21:26'
+layout: post
+published: true
+author: Leftbook
+---
+
+**_Leftbook Socialist Network_**
+Temporary Interim Policies
+
+**1) **Leftbook Socialist Network or LSN is a free service in which membership and use is voluntary. As such by joining you agree that LSN or the comrades that run it are liable for ANY damages that may occur as a result of using this free service.
+
+**2) **You agree to follow any and all laws of the United States (where the site is hosted) and the laws of your country in regards to your conduct on LSN. Illegal activity will result in removal from the network in order to protect the network and its members.
+
+**3) **You agree that you are not here to argue far right talking points, views or ideas. 
+
+**4) **Liberal/Centrists/Libertarians working class are welcome under the premise that they keep an open mind and a good attitude.  You are required to place this on your profile info; if you do not, and you're found, you will be removed.
+
+**5) **You are not currently associated with any far-right extremist groups: included but not limited to white nationalists, KKK, Proud Boys, etc.- current members are not permitted entry and thereby any such entry would be unlawful.
+
+**6) ** You agree that you will speak and act in good faith, and be respectful of comrades at all time. 
+
+**7) **You are not currently a police officer, prison guard, capitalist, or a landlord. This is a network of and for the people and you are considered enemies of such.
+
+Nazism, Rascism, Sexism, Hatred in General WILL NOT be TOLERATED.  The same general leftist space rules apply here. However we encourage more civility and diplomacy with each other. As much as possible.
