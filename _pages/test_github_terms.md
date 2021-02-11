@@ -21,3 +21,4 @@ Temporary Interim Policies</p>
 <p><strong>6) </strong> You agree that you will speak and act in good faith, and be respectful of comrades at all time. </p>
 <p><strong>7) </strong>You are not currently a police officer, prison guard, capitalist, or a landlord. This is a network of and for the people and you are considered enemies of such.</p>
 <p>Nazism, Rascism, Sexism, Hatred in General WILL NOT be TOLERATED.  The same general leftist space rules apply here. However we encourage more civility and diplomacy with each other. As much as possible.</p>
+<p>This change was made on github!</p>
